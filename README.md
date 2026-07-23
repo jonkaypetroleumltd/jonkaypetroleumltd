@@ -1,4 +1,4 @@
-## Hi there 👋
+## Oil & Gas Downstream Company
 
 <!--
 **jonkaypetroleumltd/jonkaypetroleumltd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
